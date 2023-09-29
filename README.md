@@ -5,4 +5,4 @@
 ##### Fannisa Firdaus - 1180505624
 ##### Muhammad Hanief Arrosyadi - 5190505041
 
-![Uygulama Arayüzü](https://thumbs.gfycat.com/OccasionalBabyishGarpike.webp)
+![20220608_143331](https://github.com/FannisaF/Gezi_Uygulamasi/assets/111955970/3bfbb82f-5619-4138-a239-e7daef566def)
